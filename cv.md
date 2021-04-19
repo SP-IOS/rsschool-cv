@@ -26,7 +26,7 @@ Experience
 
 **Second Company** 
 * Role
-* 2012-2027
+* 2012-2017
 * Minsk
 
 Skills
